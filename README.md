@@ -1,3 +1,3 @@
 - I'm Dev_Gear
-- SWF flies are key
-- I like turtles
+- I use this for storing files for things like websites, archives, ect.
+- I plaays ganes like Roblox, Blockland, Team Fortress 2
