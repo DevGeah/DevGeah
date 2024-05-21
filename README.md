@@ -1,3 +1,3 @@
 - I'm Dev_Gear
-- I use this for storing files for things like websites, archives, ect.
-- I plaays ganes like Roblox, Blockland, Team Fortress 2
+- I use this for hosting files for things like websites, archives, ect.
+- I play games like Roblox, Blockland, and Team Fortress 2
